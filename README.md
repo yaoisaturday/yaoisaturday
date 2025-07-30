@@ -1,4 +1,4 @@
-ㅤ![](https://komarev.com/ghpvc/?username=yaoisaturday&color=blueviolet&style=plastic)
+ㅤ![](https://komarev.com/ghpvc/?username=yaoisaturday&color=3d0909&style=plastic)
 
 ㅤ[add me in airbuds!](https://i.airbuds.fm/leatheers/l1jqBDvgDq)
 
