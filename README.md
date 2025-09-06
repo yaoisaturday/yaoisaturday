@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=yaoisaturday&color=3d0909&style=plastic)
 
-[read carrd please](https://leathersrei.carrd.co)
+[read carrd please](https://holyfknairball.carrd.co/)
 
 [add me in airbuds!](https://i.airbuds.fm/leatheers/l1jqBDvgDq)
 
