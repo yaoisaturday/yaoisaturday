@@ -14,9 +14,8 @@
   </a>
 </p>
 
-![3edab5240febd225ddd6b5c22bb333d2_gif (800×340)](https://github.com/user-attachments/assets/a2fb6a10-5e5f-4a80-bdd2-68b9b7bcbaf8)
-
 ![tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048](https://github.com/user-attachments/assets/fd1746ed-2c6d-446e-a876-ed3084570d6b)
 
+![3edab5240febd225ddd6b5c22bb333d2_gif (800×340)](https://github.com/user-attachments/assets/1e6395ce-5a29-4047-96bc-1541fbc522af)
 
 </div>
