@@ -14,7 +14,8 @@
   </a>
 </p>
 
-![3edab5240febd225ddd6b5c22bb333d2_gif(800×340)](https://github.com/user-attachments/assets/1e6395ce-5a29-4047-96bc-1541fbc522af)
+![Без названия (9)](https://github.com/user-attachments/assets/1286d3c7-6ff9-4998-b34e-eec813638f06)
+
 
 ![tumblr_fd0e4524b24672fb974df41350ac2d09_db95d0b3_1280](https://github.com/user-attachments/assets/8f9b6c88-6608-4b13-9906-2a6cae6cba02)
 
