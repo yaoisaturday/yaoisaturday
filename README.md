@@ -14,8 +14,9 @@
   </a>
 </p>
 
-![tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048](https://github.com/user-attachments/assets/fd1746ed-2c6d-446e-a876-ed3084570d6b)
+![3edab5240febd225ddd6b5c22bb333d2_gif(800×340)](https://github.com/user-attachments/assets/1e6395ce-5a29-4047-96bc-1541fbc522af)
 
-![3edab5240febd225ddd6b5c22bb333d2_gif (800×340)](https://github.com/user-attachments/assets/1e6395ce-5a29-4047-96bc-1541fbc522af)
+![tumblr_fd0e4524b24672fb974df41350ac2d09_db95d0b3_1280](https://github.com/user-attachments/assets/8f9b6c88-6608-4b13-9906-2a6cae6cba02)
+
 
 </div>
