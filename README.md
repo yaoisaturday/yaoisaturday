@@ -7,5 +7,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312ydtze6lxw27mshtyctdc4bwcu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=990f0f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312ydtze6lxw27mshtyctdc4bwcu&redirect=true)
 
-![76a823c2-cc97-4f4c-8c4f-f605c37c33cb](https://github.com/user-attachments/assets/39425056-ef7c-409d-9d74-6c5dcfc43315)
-
+![76a823c2-cc97-4f4c-8c4f-f605c37c33cb](https://i.pinimg.com/originals/40/bc/64/40bc64d98b0dc5757b82197eae0cdf59.gif)
