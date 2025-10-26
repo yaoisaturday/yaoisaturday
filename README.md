@@ -16,6 +16,6 @@
 
 ![Без названия (9)](https://github.com/user-attachments/assets/1286d3c7-6ff9-4998-b34e-eec813638f06)
 
-<img width="2048" height="413" alt="image" src="https://github.com/user-attachments/assets/2f4d0dbd-cd4f-4107-99a2-f165dad28abd" />
+<img width="2048" height="413" alt="tumblr_8e55597b1376cb95b9c797ed00861cd2_aae1dca5_2048" src="https://github.com/user-attachments/assets/4769d8ce-eefb-4b71-b3b5-3ae5a874a71a" />
 
 </div>
