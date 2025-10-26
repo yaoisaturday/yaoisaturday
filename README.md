@@ -16,7 +16,7 @@
 
 ![3edab5240febd225ddd6b5c22bb333d2_gif (800×340)](https://github.com/user-attachments/assets/a2fb6a10-5e5f-4a80-bdd2-68b9b7bcbaf8)
 
-![tumblr_14a60e42aba2a8d8a6ed8c238365d2dc_40471953_2048](https://github.com/user-attachments/assets/91ac6db3-266d-4ed2-8df8-a18feac45146)
+![tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048](https://github.com/user-attachments/assets/fd1746ed-2c6d-446e-a876-ed3084570d6b)
 
 
 </div>
