@@ -15,6 +15,8 @@
 </p>
 
 ![3edab5240febd225ddd6b5c22bb333d2_gif (800×340)](https://github.com/user-attachments/assets/a2fb6a10-5e5f-4a80-bdd2-68b9b7bcbaf8)
-<img width="405" height="21" alt="image" src="https://github.com/user-attachments/assets/0c19ca03-3b27-4dcb-94cd-b2995ad3f262" />
+
+<img width="1920" height="419" alt="image" src="https://github.com/user-attachments/assets/e6543a33-e2c1-4341-a2b0-851fa44f4483" />
+
 
 </div>
