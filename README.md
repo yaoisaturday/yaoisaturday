@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=yaoisaturday&color=5B1166&style=plastic)
 
-✦︎ 𝒓𝒆𝒂𝒅 𝒎𝒚 𝒄𝒂𝒓𝒓𝒅 𝒑𝒍𝒆𝒂𝒔𝒆 — ꒰ [𝘭𝘪𝘯𝘬](https://n3kon3ko.carrd.co) ꒱
+✦︎ 𝒓𝒆𝒂𝒅 𝒎𝒚 𝒄𝒂𝒓𝒓𝒅 𝒑𝒍𝒆𝒂𝒔𝒆 — ꒰ [𝘭𝘪𝘯𝘬](https://castoricekisser.carrd.co) ꒱
 
 𝖺𝖽𝖽 𝗆𝖾 𝗂𝗇 [𝖺𝗂𝗋𝖻𝗎𝖽𝗌](https://i.airbuds.fm/leatheers/l1jqBDvgDq) .ᐟ.ᐟ
 
