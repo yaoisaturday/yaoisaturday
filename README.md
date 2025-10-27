@@ -6,7 +6,7 @@
 
 ✦︎ 𝒓𝒆𝒂𝒅 𝒎𝒚 𝒄𝒂𝒓𝒓𝒅 𝒑𝒍𝒆𝒂𝒔𝒆 — ꒰ [𝘭𝘪𝘯𝘬](https://n3kon3ko.carrd.co) ꒱
 
-[add me in airbuds!](https://i.airbuds.fm/leatheers/l1jqBDvgDq)
+[airbuds](https://i.airbuds.fm/leatheers/l1jqBDvgDq)
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31b6wy2npgm7hux763humjctz6pq&redirect=true">
