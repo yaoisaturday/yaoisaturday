@@ -14,6 +14,8 @@
   </a>
 </p>
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Momo+Signature&size=19&pause=999&color=B77AFF&center=true&vCenter=true&random=true&width=435&lines=when+flowers+bloom+again+;remember+our+promise" alt="Typing SVG" /></a>
+
 ![Без названия (9)](https://github.com/user-attachments/assets/1286d3c7-6ff9-4998-b34e-eec813638f06)
 
 <img width="2048" height="413" alt="tumblr_8e55597b1376cb95b9c797ed00861cd2_aae1dca5_2048" src="https://github.com/user-attachments/assets/4769d8ce-eefb-4b71-b3b5-3ae5a874a71a" />
