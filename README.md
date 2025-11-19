@@ -16,6 +16,7 @@
 
 <img width="867" height="287" alt="image_2025-11-19_15-21-47" src="https://github.com/user-attachments/assets/626d2b6f-ee2a-4833-8d30-31e50cfe8f3a" />
 
-<img width="2048" height="413" alt="tumblr_8e55597b1376cb95b9c797ed00861cd2_aae1dca5_2048" src="https://github.com/user-attachments/assets/4769d8ce-eefb-4b71-b3b5-3ae5a874a71a" />
+
+<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/29e126a8-5643-48cb-a9c3-5fe895a810b3" />
 
 </div>
