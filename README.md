@@ -14,9 +14,8 @@
   </a>
 </p>
 
-<img width="867" height="287" alt="image_2025-11-19_15-21-47" src="https://github.com/user-attachments/assets/626d2b6f-ee2a-4833-8d30-31e50cfe8f3a" />
+<img width="867" height="287" alt="image_2025-11-19_15-21-47" src="https://github.com/user-attachments/assets/626d2b6f-ee2a-4833-8d30-31e50cfe8f3a">&nbsp;&nbsp;&nbsp;
 
-
-<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/29e126a8-5643-48cb-a9c3-5fe895a810b3" />
+<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/29e126a8-5643-48cb-a9c3-5fe895a810b3">
 
 </div>
