@@ -14,7 +14,7 @@
   </a>
 </p>
 
-<img width="867" height="487" alt="image_2025-11-19_15-19-00" src="https://github.com/user-attachments/assets/351698af-94db-428e-823c-65b0f75ccf27" />
+<img width="867" height="287" alt="image_2025-11-19_15-21-47" src="https://github.com/user-attachments/assets/626d2b6f-ee2a-4833-8d30-31e50cfe8f3a" />
 
 <img width="2048" height="413" alt="tumblr_8e55597b1376cb95b9c797ed00861cd2_aae1dca5_2048" src="https://github.com/user-attachments/assets/4769d8ce-eefb-4b71-b3b5-3ae5a874a71a" />
 
