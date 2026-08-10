@@ -14,8 +14,4 @@
   </a>
 </p>
 
-<img width="867" height="287" alt="image_2025-11-19_15-21-47" src="https://github.com/user-attachments/assets/626d2b6f-ee2a-4833-8d30-31e50cfe8f3a">&nbsp;&nbsp;&nbsp;
-
-<img width="1280" height="189" alt="tumblr_8575e0056463b4b0b84fd5635a021296_f64fe208_1280" src="https://github.com/user-attachments/assets/005d6130-dfd4-4c11-807d-d9ff507e1528" />
-
 </div>
