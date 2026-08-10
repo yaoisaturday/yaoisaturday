@@ -15,6 +15,6 @@
   </a>
 </p>
 
-<img width="800" height="340" alt="Без названия (10)" src="https://github.com/user-attachments/assets/8079631e-9a26-4e7b-b83c-f88c8fcef071" />
+<img width="800" height="340" alt="Без названия (11)" src="https://github.com/user-attachments/assets/c518e279-322c-4c47-951a-c20076e24b31" />
 
 </div>
